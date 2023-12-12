@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @justnightcoding.
 - 👀 I’m interested in coding, gaming and HEMA.
-- 🌱 I’m currently in the 11th grade right now (Germany).
-- 💞️ I’m looking to collaborate on my coding projects (mostly 2D games). Highly appreciate graphic designers because I like to focus on coding :D
-- 📫 How to reach me: check out my german coding and gaming discord server discord.gg/9ExDZrPb7q
+- 🌱 I look forward to collaborateíng on my coding projects (mostly 2D games). Highly appreciate the help of graphic designers because I really much prefer to focus on coding :D
+- 📫 How to reach me: check out my german coding and gaming discord server: discord.gg/9ExDZrPb7q
