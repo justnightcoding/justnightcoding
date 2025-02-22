@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @justnightcoding.
 - 👀 I’m interested in coding, gaming and HEMA.
-- 🌱 I look forward to collaborateíng on my coding projects (mostly 2D games). Highly appreciate aid of graphic designers cause I tend to prefer coding :D
-- 📫 How to reach me: check out my german coding and gaming discord server discord.gg/9ExDZrPb7q
+- 🌱 My main projects are little 2D games, that's why I appreciate collabs with graphic designers cause I tend to prefer coding :D
+- 📫 How to reach me: check out my coding and gaming discord server (German) discord.gg/9ExDZrPb7q
